@@ -1,4 +1,4 @@
-# 
+# NordPass for macOS instant Script: credit-card-storage & ad-blocker is the best NordPass for macOS script, featuring credit-card-storage and ad-blocker. Secure, efficient, and
 
 
 
